@@ -3,6 +3,10 @@ Nama: M. Dwi Pratama
 
 Username dicoding: mdpraz
 
+![image](https://img-cdn.medkomtek.com/kG8asjYfgHt5gpJCBTiF5JDBtYg=/0x0/smart/filters:quality(100):format(webp)/article/I-VmIT8nKelTYGSTM_TL1/original/069468600_1605166516-shutterstock_1676999953.jpg)
+[source image](https://www.klikdokter.com/penyakit/gangguan-darah/anemia)
+
+
 
 | | Deskripsi |
 | ----------- | ----------- |
